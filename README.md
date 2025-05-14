@@ -13,7 +13,7 @@
    ![Imagem 5](/fotos/5.jpg)
    ![Imagem 6](/fotos/6.jpg)
 7) Abra o papel e vire a parte colorida para cima.
-   ![Imagem 1](/fotos/1.jpg)
+   ![Imagem 7](/fotos/7.jpg)
 8) Dobre ele ao meio e junte todas as pontas do quadrado (o formato deve parecer com um balão).
     ![Imagem 5](/fotos/5.jpg)
    ![Imagem 9](/fotos/9.jpg)
