@@ -53,3 +53,5 @@
 SEU TSURU ESTÁ PRONTO!
 ![Imagem 25](/fotos/25.jpg)
 ![Imagem 26](/fotos/26.jpg)
+
+[def]: /fotos/2.jpg
