@@ -42,7 +42,7 @@
 20) Na parte reta, pegue a ponta inferior e dobre para cima, o máximo que conseguir. Faça isso dos dois lados.
     ![Imagem 20](/fotos/20.jpg)
 21) Depois, feche os lados da figura, fazendo com que a parte que acabamos de dobrar fique 'fechada' entre duas abas.
-    ![Imagem 21](fotos/21.jpg.jpg)
+    ![Imagem 21](fotos/21.jpg)
     ![Imagem 22](/fotos/22.jpg)
 22) Dobre as laterais da figura para formar as asas.
     ![Imagem 23](/fotos/23.jpg)
