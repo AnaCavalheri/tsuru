@@ -28,9 +28,9 @@
 13) Logo em seguida, pegue a ponta do losângulo na parte inferior (apenas a ponta de cima) e abra como se fosse uma canoa.
     ![Imagem 13](/fotos/13.jpg)
 14) Depois, encontre as duas laterais na "canoa" no meio da figura e as feche.
-    ![Imagem 15](/fotos/15.jpg)
+    ![Imagem 14](/fotos/14.jpg)
 15) Repita o mesmo dos dois lados.
-    
+    ![Imagem 15](/fotos/15.jpg)
 16) Garanta que a parte de cima seja a que contém um "mini" triângulo dentro da dobradura.
     ![Imagem 16](/fotos/16.jpg)
 17) Depois, escolha um lado e dobre as duas laterais até o meio da figura.
@@ -42,6 +42,7 @@
 20) Na parte reta, pegue a ponta inferior e dobre para cima, o máximo que conseguir. Faça isso dos dois lados.
     ![Imagem 20](/fotos/20.jpg)
 21) Depois, feche os lados da figura, fazendo com que a parte que acabamos de dobrar fique 'fechada' entre duas abas.
+    ![Imagem 21](fotos/21.jpg.jpg)
     ![Imagem 22](/fotos/22.jpg)
 22) Dobre as laterais da figura para formar as asas.
     ![Imagem 23](/fotos/23.jpg)
